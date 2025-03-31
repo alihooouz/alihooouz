@@ -15,7 +15,6 @@
 - I ALSO ACCEPT .. gifting skins ^_^ (you might need my discord.) , birthday greetings (only at 3.17) , any ships (except pro/dark ships).
 
 
-![Uploading hiIIIIIIIIII PULATLLKGJAVASFas.gif…]()      .  ppulbatu , credits : TOMORROW X TOGETHER
 
 
 discord: ar4chnids_
