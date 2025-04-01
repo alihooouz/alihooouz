@@ -15,6 +15,7 @@
 - I ALSO ACCEPT .. gifting skins ^_^ (you might need my discord.) , birthday greetings (only at 3.17) , any ships (except pro/dark ships).
 
 
+![divider](https://github.com/user-attachments/assets/ce6a97e4-1791-4a00-a7bd-19072419e1ee)
 
 
 discord: ar4chnids_
@@ -22,3 +23,6 @@ discord: ar4chnids_
 strawgpage ... https://aeinx1zdxz.straw.page
 
 Old github account: https://github.com/alienatic-aein
+
+CREDITS : ppulbatu , official txt :D >> ![hiIIIIIIIIII PULATLLKGJAVASFas](https://github.com/user-attachments/assets/4f37b09c-f034-40e8-91d0-2d8b378c5bab)
+
