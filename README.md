@@ -24,5 +24,6 @@ strawgpage ... https://aeinx1zdxz.straw.page
 
 Old github account: https://github.com/alienatic-aein
 
-CREDITS : ppulbatu , official txt :D >> ![hiIIIIIIIIII PULATLLKGJAVASFas](https://github.com/user-attachments/assets/4f37b09c-f034-40e8-91d0-2d8b378c5bab)
+![image](https://github.com/user-attachments/assets/fc24ba2a-1868-411d-a600-8b7e9ed9fa16)
+
 
