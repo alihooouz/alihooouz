@@ -18,7 +18,7 @@
 ![divider](https://github.com/user-attachments/assets/ce6a97e4-1791-4a00-a7bd-19072419e1ee)
 
 
-discord: ar4chnids_
+discord: mdcr_leadscient1st  (GOU KRIMI REFERENCNEHAHDAHHDAHDHAHDaH)
 
 strawgpage ... https://aeinx1zdxz.straw.page
 
