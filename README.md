@@ -24,6 +24,7 @@ strawgpage ... https://aeinx1zdxz.straw.page
 
 Old github account: https://github.com/alienatic-aein
 
-![image](https://github.com/user-attachments/assets/fc24ba2a-1868-411d-a600-8b7e9ed9fa16)
+![image](https://github.com/user-attachments/assets/c7761627-53ed-4c0b-80cd-8cb0ce31bf00)
+
 
 
