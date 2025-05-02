@@ -33,5 +33,5 @@ Old github account: https://github.com/alienatic-aein
 testing github readme down here DONT MIND IT
 
 <p align="center">
-    <code style="color : Orangered">amazingly great text here</code>
+    <code style="color : Orangered">"This is just a drama / Everything is a game."</code>
 </p>
