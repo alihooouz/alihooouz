@@ -30,7 +30,11 @@ Old github account: https://github.com/alienatic-aein
 .
 .
 
-![wow](https://github.com/user-attachments/assets/82a34f49-af53-4790-924d-c904782b164d)
+testing github readme down here DONT MIND IT
+
+<p align="center">
+    <img width="200" src="http://material-bread.org/logo-shadow.svg" alt="Material Bread logo">
+</p>
 
 
 
