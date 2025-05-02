@@ -3,7 +3,7 @@
 
 discord: dear_spu7nik
 
-strawgpage ... https://aeinx1zdxz.straw.page
+strawgpage ... https://aeinx1zdxz.straw.page (WORK IN PROGRESS)
 
 Old github account: https://github.com/alienatic-aein
 
@@ -13,7 +13,7 @@ Old github account: https://github.com/alienatic-aein
 .
 .
 
-testing github readme down here DONT MIND IT
+testing github readme here DONT MIND IT
 
 <p align="center">
     <code style="color : Orangered">"This is just a drama , Everything is a game."</code>
