@@ -1,6 +1,7 @@
-![cr_ @_kkirbvo via x_twt](https://github.com/user-attachments/assets/310835fe-030c-43e8-a667-63ce83b4a9a3)
+![1000000934](https://github.com/user-attachments/assets/17669c40-791d-4afc-b929-0680609f8ce5)
 
-<code style="color : Orangered">cr: @/kkirbvo via x/twt</code>
+
+<code style="color : Orangered">cr: @lintheidiot on tiktok</code>
 </p>
 
 
@@ -17,5 +18,5 @@ strawgpage ... https://aeinx1zdxz.straw.page
 
 
 <p align="center">
-    <code style="color : Orangered">"This is just a drama , Everything is a game."</code>
+    <code style="color : Orangered">"You're nothing but a broke, FEIN FEIN FEIN FEIN !! ."</code>
 </p>
