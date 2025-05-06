@@ -6,7 +6,7 @@
 
 
 
-discord: dear_spu7nik
+discord: _luckypizza
 
 strawgpage ... https://aeinx1zdxz.straw.page
 
