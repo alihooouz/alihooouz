@@ -18,5 +18,5 @@ strawgpage ... https://aeinx1zdxz.straw.page
 
 
 <p align="center">
-    <code style="color : Orangered">"You're nothing but a broke, FEIN FEIN FEIN FEIN !! ."</code>
+    <code style="color : Orangered">"mispell clockwork chance as cockwork chance one more time"</code>
 </p>
