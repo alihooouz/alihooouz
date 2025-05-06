@@ -1,7 +1,8 @@
-![1000000934](https://github.com/user-attachments/assets/17669c40-791d-4afc-b929-0680609f8ce5)
+![Uploading 1000001208.jpg…]()
 
 
-<code style="color : Orangered">I LOVE COLOR GANG</code>
+
+<code style="color : Orangered">cr: @lemuenify on x/twitter</code>
 </p>
 
 
